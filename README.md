@@ -1,1 +1,1 @@
-김민정   yam
+강주희 Seonghyun koo
